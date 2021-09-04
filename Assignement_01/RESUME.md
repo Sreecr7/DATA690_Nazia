@@ -1,3 +1,4 @@
-![](Assignement_01/Picture.jpg)
+![](Picture.jpg)
+
 
 
