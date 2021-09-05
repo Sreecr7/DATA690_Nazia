@@ -54,7 +54,7 @@
 - **Certificate of Recognition** (having successfully achieved academic distinction), Chittagong Independent University, 2015
 
 
-## Social Activities
+## Extracurricular Activities
 
 - **Executive Member**, Youth Network (non-profit org), May 2017 to December 2017
 - **Campus Ambassador**, Women Entrepreneurship Summit, April 2017
