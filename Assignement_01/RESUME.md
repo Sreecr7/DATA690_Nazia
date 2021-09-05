@@ -26,8 +26,8 @@
 
 ## Language Skills
 
-- English, Proficient
-- Bengali, Proficient 
+- **English**, Proficient
+- **Bengali**, Proficient 
 
 ## Technical Skills
 
@@ -48,16 +48,16 @@
 - Leadership
 - Management
 
-## Awards
+## Awards & Scholarships 
 
-- Undergrad merit-based scholarship, 2015 to 2018
-- CIU Certificate of Recognition (having successfully achieved academic distinction), 2015
+- **Undergrad Merit-based Scholarship**, 2015 to 2018
+- **Certificate of Recognition** (having successfully achieved academic distinction), Chittagong Independent University, 2015
 
 
 ## Social Activities
 
-- **Executive Member**, Youth Network (non-profit org) 
-- **Campus Ambassador**, Women Entrepreneurship Summit
+- **Executive Member**, Youth Network (non-profit org), May 2017 to December 2017
+- **Campus Ambassador**, Women Entrepreneurship Summit, April 2017
 
 ## Hobbies
 
